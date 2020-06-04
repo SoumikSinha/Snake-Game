@@ -7,4 +7,4 @@ Account Link:-https://www.instagram.com/soumik_sinha_2006/
 Subscribe to my Youtube CHannel
 Channel link:-https://www.youtube.com/channel/UCpc24SlIMg-42bNU1uw-p5A?view_as=subscriber
 And subscribe my website
-Website link:-http://soumik sinha.wixsite.com/arduinobasedhantalkd
+Website link:-http://soumiksinha.wixsite.com/arduinobasedhantalkd
